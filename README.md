@@ -10,7 +10,7 @@ I can come off super blunt and dry, I'm not trying to upset you nor am I upset. 
 
 I tend to form attachments easily. please only friend me with me if you're genuinely interested in chatting and building a friendship. don't friend me just to never talk again.
 
-# ☆⊹ ━━━━━━━━┓ 𐂯 ┏━━━━━━━━ ⊹☆
+
 
 DNI // 18+, sorry!! , basic DNI, endogenic systems are on thin ice, saying slurs you can't reclaim, other than that i block freely
 
